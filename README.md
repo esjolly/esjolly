@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @esjolly
 - 👀 I’m interested in mechanical keyboards, retro gaming, reading (mostly scifi), bicycling, pit bulls, art, tattoos and much much more!
-- 🌱 I’m currently learning how to be a software tester and I'm super excited about it!
+- 🌱 I’m currently learning how to 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
